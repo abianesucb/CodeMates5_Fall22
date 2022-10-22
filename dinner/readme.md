@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Pad Kee Mao (Thai Drunken Noodles)
 
-## Servings: 
+## Servings: 2-3 servings
 
 ## Time to prepare: 
 
